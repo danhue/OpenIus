@@ -8,3 +8,4 @@ sdfsdf sdf
 3. Hadha
 4. Haftung
 Text sdfha sdf sdf sfsdfasdf
+5. Auflösung des Vereins
